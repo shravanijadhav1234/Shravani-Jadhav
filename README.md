@@ -13,3 +13,6 @@ https://drive.google.com/file/d/1N8SaelTt7x1IAUAEqp6yAA2y2Nm9q-cX/view?usp=drive
 
 • Practical 2:
 https://drive.google.com/file/d/15_5lqtrUjVUwiFlOhsalUoVCqHXVc8Xq/view?usp=drivesdk
+
+• Practical 3:
+https://drive.google.com/file/d/1QO9nYzbW7iefOXsqYLusYTF8N2YFt7St/view?usp=drivesdk
