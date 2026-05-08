@@ -1,12 +1,15 @@
 # Shravani-Jadhav
-#VIDEO LINK
+• Video Link:
 https://youtu.be/J6YKg3oCkGI?si=ZA1S3edHBWrt2R9g
 
-#CODETANTRA COMPLETION LINK
+• Codetantra Certificate Link:
 https://drive.google.com/file/d/1i__4WCUmAtbCa_AT6h3KfQ7FFTMed2ph/view?usp=drivesdk
 
-#CISCO CERTIFICATES
+• Cisco Certificates:
 https://drive.google.com/file/d/1flfyCqbVj_9lNXkKcF1P4iwkkZZyDfwp/view?usp=drivesdk
 
-#Practical 1
+• Practical 1:
 https://drive.google.com/file/d/1N8SaelTt7x1IAUAEqp6yAA2y2Nm9q-cX/view?usp=drivesdk
+
+• Practical 2:
+https://drive.google.com/file/d/15_5lqtrUjVUwiFlOhsalUoVCqHXVc8Xq/view?usp=drivesdk
