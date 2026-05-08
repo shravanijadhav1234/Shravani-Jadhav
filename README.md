@@ -1,3 +1,6 @@
 # Shravani-Jadhav
-https://drive.google.com/file/d/1i__4WCUmAtbCa_AT6h3KfQ7FFTMed2ph/view?usp=drivesdk
+#VIDEO LINK
 https://youtu.be/J6YKg3oCkGI?si=ZA1S3edHBWrt2R9g
+
+#CODETANTRA COMPLETION LINK
+https://drive.google.com/file/d/1i__4WCUmAtbCa_AT6h3KfQ7FFTMed2ph/view?usp=drivesdk
